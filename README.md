@@ -14,3 +14,11 @@ Here are some ideas to get you started:
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I have a cat
 -->
+Location: Valladolid, Spain
+
+My Favorite Fluorophore/Metal-Isotope: YG584
+
+Previous Coding Experience: None
+
+What I Hope to Get From This Course: Learn something
+
